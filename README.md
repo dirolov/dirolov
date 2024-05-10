@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @dirolov
+- 👀 I’m interested in absolutely nothing
+- 🌱 I’m currently learning nothing
+- 📫 How to reach me: tg coluska @streizzand
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: skibidi toilet sigma ohio rizz gyat
